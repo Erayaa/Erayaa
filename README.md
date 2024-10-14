@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Erayaa
+- 👋 Hi, I’m @Araya
 - 👀 I’m interested in AI and Gen AI
 -  I’m looking to collaborate on Gen AI Innovations 
